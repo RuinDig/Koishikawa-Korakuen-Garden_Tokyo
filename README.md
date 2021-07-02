@@ -198,3 +198,5 @@
 ![Koishikawa-Korakuen-Garden_Tokyo_098](https://user-images.githubusercontent.com/20723919/124213356-5a4cee80-db2b-11eb-92f4-b5cef1c98505.JPG)
 
 ![Koishikawa-Korakuen-Garden_Tokyo_099](https://user-images.githubusercontent.com/20723919/124213357-5ae58500-db2b-11eb-9fe6-b165ae194a3f.JPG)
+
+![Koishikawa-Korakuen-Garden_Tokyo_100](https://user-images.githubusercontent.com/20723919/124213722-08589880-db2c-11eb-85e1-2afd3d57776d.JPG)
